@@ -1,0 +1,2 @@
+- 👋 olá, meu nome é @thifanylr
+- 👀 sou nova aqui e ainda estou aprendendo 
